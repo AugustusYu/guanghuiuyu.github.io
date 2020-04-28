@@ -1,2 +1,2 @@
 # guanghuiyu.github.io
-visit https://augustusyu.github.io/guanghuiyu.github.io/
+visit my resume at https://augustusyu.github.io/guanghuiyu.github.io/
